@@ -1,1 +1,1 @@
-# supermathgames
+WE GETTING SUPER FUCKING SMART (dumb)
